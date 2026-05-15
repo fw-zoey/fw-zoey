@@ -1,3 +1,3 @@
-### Hi, I'm zoey :)
-
-[![Readme Quotes](https://quotes-generator.vercel.app/api?theme=light&type=horizontal)](https://github.com/PiyushSuthar/github-readme-quotes)
+<!-- QUOTE -->
+> 💬 *"오늘 할 수 있는 일에 최선을 다하라."*
+<!-- /QUOTE -->
