@@ -1,3 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"오늘 할 수 있는 일에 최선을 다하라."*
+> 💬 *"Worry is a waste of emotional reserve."*  
+> &nbsp;&nbsp;— Ayn Rand
 <!-- /QUOTE -->
