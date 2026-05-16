@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Worry is a waste of emotional reserve."*  
-> &nbsp;&nbsp;— Ayn Rand
+> 💬 *"Genius is one percent inspiration and ninety-nine percent perspiration."*  
+> &nbsp;&nbsp;— Thomas Edison
 <!-- /QUOTE -->
