@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Genius is one percent inspiration and ninety-nine percent perspiration."*  
-> &nbsp;&nbsp;— Thomas Edison
+> 💬 *"Learn from the rejection and turn it into an opportunity!"*  
+> &nbsp;&nbsp;— Mary Engelbreit
 <!-- /QUOTE -->
