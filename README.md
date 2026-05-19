@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies."*  
-> &nbsp;&nbsp;— Emily Dickinson
+> 💬 *"For the things we have to learn before we can do them, we learn by doing them."*  
+> &nbsp;&nbsp;— Aristotle
 <!-- /QUOTE -->
