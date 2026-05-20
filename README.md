@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"For the things we have to learn before we can do them, we learn by doing them."*  
-> &nbsp;&nbsp;— Aristotle
+> 💬 *"Sometimes you have to lose all you have to find out who you truly are."*  
+> &nbsp;&nbsp;— Roy T. Bennett
 <!-- /QUOTE -->
