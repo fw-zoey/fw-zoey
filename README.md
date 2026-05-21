@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Sometimes you have to lose all you have to find out who you truly are."*  
-> &nbsp;&nbsp;— Roy T. Bennett
+> 💬 *"If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form."*  
+> &nbsp;&nbsp;— Paramahansa Yogananda
 <!-- /QUOTE -->
