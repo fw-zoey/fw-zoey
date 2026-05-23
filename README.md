@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Success is within the reach of just about everyone."*  
-> &nbsp;&nbsp;— Lolly Daskal
+> 💬 *"Character is destiny."*  
+> &nbsp;&nbsp;— Heraclitus
 <!-- /QUOTE -->
