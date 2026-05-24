@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Character is destiny."*  
-> &nbsp;&nbsp;— Heraclitus
+> 💬 *"The most important single ingredient in the formula of success is knowing how to get along with people."*  
+> &nbsp;&nbsp;— Theodore Roosevelt
 <!-- /QUOTE -->
