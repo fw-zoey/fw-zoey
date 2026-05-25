@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The most important single ingredient in the formula of success is knowing how to get along with people."*  
-> &nbsp;&nbsp;— Theodore Roosevelt
+> 💬 *"There's more to life than being a passenger."*  
+> &nbsp;&nbsp;— Amelia Earhart
 <!-- /QUOTE -->
