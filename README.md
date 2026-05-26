@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"There's more to life than being a passenger."*  
-> &nbsp;&nbsp;— Amelia Earhart
+> 💬 *"We suffer more often in imagination than in reality."*  
+> &nbsp;&nbsp;— Seneca
 <!-- /QUOTE -->
