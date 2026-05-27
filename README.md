@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"We suffer more often in imagination than in reality."*  
-> &nbsp;&nbsp;— Seneca
+> 💬 *"The businessman's tool is value."*  
+> &nbsp;&nbsp;— Ayn Rand
 <!-- /QUOTE -->
