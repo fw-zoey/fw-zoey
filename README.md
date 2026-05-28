@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The businessman's tool is value."*  
-> &nbsp;&nbsp;— Ayn Rand
+> 💬 *"There's no coming to consciousness without pain"*  
+> &nbsp;&nbsp;— Carl Jung
 <!-- /QUOTE -->
