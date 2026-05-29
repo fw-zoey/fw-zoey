@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"There's no coming to consciousness without pain"*  
-> &nbsp;&nbsp;— Carl Jung
+> 💬 *"Experience is simply the name we give our mistakes."*  
+> &nbsp;&nbsp;— Oscar Wilde
 <!-- /QUOTE -->
