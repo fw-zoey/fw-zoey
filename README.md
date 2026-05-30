@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Experience is simply the name we give our mistakes."*  
-> &nbsp;&nbsp;— Oscar Wilde
+> 💬 *"Only put off until tomorrow what you are willing to die having left undone."*  
+> &nbsp;&nbsp;— Pablo Picasso
 <!-- /QUOTE -->
