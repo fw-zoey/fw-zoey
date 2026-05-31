@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Only put off until tomorrow what you are willing to die having left undone."*  
-> &nbsp;&nbsp;— Pablo Picasso
+> 💬 *"Keep your eyes on the stars, but remember to keep your feet on the ground."*  
+> &nbsp;&nbsp;— Theodore Roosevelt
 <!-- /QUOTE -->
