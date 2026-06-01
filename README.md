@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Keep your eyes on the stars, but remember to keep your feet on the ground."*  
-> &nbsp;&nbsp;— Theodore Roosevelt
+> 💬 *"A fall into a ditch makes you wiser."*  
+> &nbsp;&nbsp;— Chinese Proverb
 <!-- /QUOTE -->
