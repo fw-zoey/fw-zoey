@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"A fall into a ditch makes you wiser."*  
-> &nbsp;&nbsp;— Chinese Proverb
+> 💬 *"Time heals what reason cannot."*  
+> &nbsp;&nbsp;— Seneca
 <!-- /QUOTE -->
