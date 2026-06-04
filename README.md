@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Everything you've ever wanted is on the other side of fear."*  
-> &nbsp;&nbsp;— George Addair
+> 💬 *"Deliberately seek the company of people who influence you to think and act on building the life you desire."*  
+> &nbsp;&nbsp;— Napoleon Hill
 <!-- /QUOTE -->
