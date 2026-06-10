@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"If you're afraid - don't do it, - if you're doing it - don't be afraid!"*  
-> &nbsp;&nbsp;— Genghis Khan
+> 💬 *"It is during our darkest moments that we must focus to see the light."*  
+> &nbsp;&nbsp;— Aristotle
 <!-- /QUOTE -->
