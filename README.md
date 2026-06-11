@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"It is during our darkest moments that we must focus to see the light."*  
-> &nbsp;&nbsp;— Aristotle
+> 💬 *"Art is to console those who are broken by life."*  
+> &nbsp;&nbsp;— Vincent van Gogh
 <!-- /QUOTE -->
