@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Art is to console those who are broken by life."*  
-> &nbsp;&nbsp;— Vincent van Gogh
+> 💬 *"There is no path to Peace. Peace is the path."*  
+> &nbsp;&nbsp;— Dan Millman
 <!-- /QUOTE -->
