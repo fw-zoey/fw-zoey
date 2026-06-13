@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"There is no path to Peace. Peace is the path."*  
-> &nbsp;&nbsp;— Dan Millman
+> 💬 *"The best way out is always through."*  
+> &nbsp;&nbsp;— Robert Frost
 <!-- /QUOTE -->
