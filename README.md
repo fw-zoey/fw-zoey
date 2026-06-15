@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Do not ignore the passion that burns in you. Spend time to discover your gift."*  
-> &nbsp;&nbsp;— Steve Harvey
+> 💬 *"To bear trials with a calm mind robs misfortune of its strength and burden."*  
+> &nbsp;&nbsp;— Seneca
 <!-- /QUOTE -->
