@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"To bear trials with a calm mind robs misfortune of its strength and burden."*  
-> &nbsp;&nbsp;— Seneca
+> 💬 *"Those who realize their folly are not true fools."*  
+> &nbsp;&nbsp;— Zhuangzi
 <!-- /QUOTE -->
