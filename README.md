@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Those who realize their folly are not true fools."*  
-> &nbsp;&nbsp;— Zhuangzi
+> 💬 *"It's better to dance than to march through life."*  
+> &nbsp;&nbsp;— Yoko Ono
 <!-- /QUOTE -->
