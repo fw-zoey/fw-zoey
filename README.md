@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"It's better to dance than to march through life."*  
-> &nbsp;&nbsp;— Yoko Ono
+> 💬 *"Nothing important is learned; it is simply remembered."*  
+> &nbsp;&nbsp;— Carlos Ruiz Zafon
 <!-- /QUOTE -->
