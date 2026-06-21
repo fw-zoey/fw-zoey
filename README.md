@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Success is getting what you want. Happiness is wanting what you get."*  
-> &nbsp;&nbsp;— Andrew Carnegie
+> 💬 *"If you do not change direction, you may end up where you are heading."*  
+> &nbsp;&nbsp;— Lao Tzu
 <!-- /QUOTE -->
