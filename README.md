@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"If you do not change direction, you may end up where you are heading."*  
-> &nbsp;&nbsp;— Lao Tzu
+> 💬 *"Remember we're all in this alone."*  
+> &nbsp;&nbsp;— Lily Tomlin
 <!-- /QUOTE -->
