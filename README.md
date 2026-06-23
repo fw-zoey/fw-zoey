@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Remember we're all in this alone."*  
-> &nbsp;&nbsp;— Lily Tomlin
+> 💬 *"Wheels of justice grind slow but grind fine."*  
+> &nbsp;&nbsp;— Sun Tzu
 <!-- /QUOTE -->
