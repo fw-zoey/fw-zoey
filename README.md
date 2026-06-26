@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Either get busy living or get busy dying."*  
-> &nbsp;&nbsp;— Stephen King
+> 💬 *"Common sense is not so common."*  
+> &nbsp;&nbsp;— Voltaire
 <!-- /QUOTE -->
