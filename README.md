@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Rewards and punishment is the lowest form of education."*  
-> &nbsp;&nbsp;— Zhuangzi
+> 💬 *"Blessings and burdens are not mutually exclusive."*  
+> &nbsp;&nbsp;— Ryan Holiday
 <!-- /QUOTE -->
