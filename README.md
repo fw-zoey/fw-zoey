@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Blessings and burdens are not mutually exclusive."*  
-> &nbsp;&nbsp;— Ryan Holiday
+> 💬 *"No one returns from a long journey the same person they were before."*  
+> &nbsp;&nbsp;— Zen Proverb
 <!-- /QUOTE -->
