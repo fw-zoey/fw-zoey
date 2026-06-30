@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"No one returns from a long journey the same person they were before."*  
-> &nbsp;&nbsp;— Zen Proverb
+> 💬 *"Respect is earned by effort not age, all things age without effort."*  
+> &nbsp;&nbsp;— C. Sean McGee
 <!-- /QUOTE -->
