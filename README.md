@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Realistic people do not accomplish extraordinary things."*  
-> &nbsp;&nbsp;— John Eliot
+> 💬 *"Goodness is the only investment that never fails."*  
+> &nbsp;&nbsp;— Henry David Thoreau
 <!-- /QUOTE -->
