@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Goodness is the only investment that never fails."*  
-> &nbsp;&nbsp;— Henry David Thoreau
+> 💬 *"Everything is possible. The impossible just takes longer."*  
+> &nbsp;&nbsp;— Dan Brown
 <!-- /QUOTE -->
