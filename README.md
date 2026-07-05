@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Everything is possible. The impossible just takes longer."*  
-> &nbsp;&nbsp;— Dan Brown
+> 💬 *"The universe doesn't give you what you ask for with your thoughts - it gives you what you demand with your actions."*  
+> &nbsp;&nbsp;— Steve Maraboli
 <!-- /QUOTE -->
