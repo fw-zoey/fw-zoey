@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The universe doesn't give you what you ask for with your thoughts - it gives you what you demand with your actions."*  
-> &nbsp;&nbsp;— Steve Maraboli
+> 💬 *"We would accomplish many more things if we did not think of them as impossible."*  
+> &nbsp;&nbsp;— Vince Lombardi
 <!-- /QUOTE -->
