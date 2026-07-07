@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"We would accomplish many more things if we did not think of them as impossible."*  
-> &nbsp;&nbsp;— Vince Lombardi
+> 💬 *"The only limit to our realization of tomorrow will be our doubts of today."*  
+> &nbsp;&nbsp;— Colin R. Davis
 <!-- /QUOTE -->
