@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The only limit to our realization of tomorrow will be our doubts of today."*  
-> &nbsp;&nbsp;— Colin R. Davis
+> 💬 *"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever."*  
+> &nbsp;&nbsp;— Aristophanes
 <!-- /QUOTE -->
