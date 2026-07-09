@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever."*  
-> &nbsp;&nbsp;— Aristophanes
+> 💬 *"To be fully alive, fully human, and completely awake is to be continually thrown out of the nest."*  
+> &nbsp;&nbsp;— Pema Chodron
 <!-- /QUOTE -->
