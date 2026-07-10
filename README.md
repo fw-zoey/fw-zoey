@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"To be fully alive, fully human, and completely awake is to be continually thrown out of the nest."*  
-> &nbsp;&nbsp;— Pema Chodron
+> 💬 *"Create with the heart; build with the mind."*  
+> &nbsp;&nbsp;— Criss Jami
 <!-- /QUOTE -->
