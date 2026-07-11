@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Create with the heart; build with the mind."*  
-> &nbsp;&nbsp;— Criss Jami
+> 💬 *"Enthusiasm makes up for a host of deficiencies."*  
+> &nbsp;&nbsp;— Barack Obama
 <!-- /QUOTE -->
