@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Enthusiasm makes up for a host of deficiencies."*  
-> &nbsp;&nbsp;— Barack Obama
+> 💬 *"We have to live life with a sense of urgency so not a minute is wasted."*  
+> &nbsp;&nbsp;— Les Brown
 <!-- /QUOTE -->
