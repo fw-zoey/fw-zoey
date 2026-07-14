@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Those who are enlightened never stop forging themselves."*  
-> &nbsp;&nbsp;— Morihei Ueshiba
+> 💬 *"Information changes your mind. Action changes your circumstances."*  
+> &nbsp;&nbsp;— Jack Butcher
 <!-- /QUOTE -->
