@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Information changes your mind. Action changes your circumstances."*  
-> &nbsp;&nbsp;— Jack Butcher
+> 💬 *"The opportunity of defeating the enemy is provided by the enemy himself."*  
+> &nbsp;&nbsp;— Sun Tzu
 <!-- /QUOTE -->
