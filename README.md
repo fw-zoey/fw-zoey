@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Be as fluid as water, do not give your enemies anything solid to attack."*  
-> &nbsp;&nbsp;— Robert Greene
+> 💬 *"We suffer more often in imagination than in reality."*  
+> &nbsp;&nbsp;— Seneca
 <!-- /QUOTE -->
