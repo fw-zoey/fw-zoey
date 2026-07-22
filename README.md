@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The traveler sees what he sees. The tourist sees what he has come to see."*  
-> &nbsp;&nbsp;— Gilbert Chesterton
+> 💬 *"No one returns from a long journey the same person they were before."*  
+> &nbsp;&nbsp;— Zen Proverb
 <!-- /QUOTE -->
