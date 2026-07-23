@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"No one returns from a long journey the same person they were before."*  
-> &nbsp;&nbsp;— Zen Proverb
+> 💬 *"How you think when you lose determines how long it will be until you win."*  
+> &nbsp;&nbsp;— Gilbert Chesterton
 <!-- /QUOTE -->
