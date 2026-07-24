@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"How you think when you lose determines how long it will be until you win."*  
-> &nbsp;&nbsp;— Gilbert Chesterton
+> 💬 *"Love your enemies, for they tell you your faults."*  
+> &nbsp;&nbsp;— Benjamin Franklin
 <!-- /QUOTE -->
