@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Love your enemies, for they tell you your faults."*  
-> &nbsp;&nbsp;— Benjamin Franklin
+> 💬 *"You can't get to a place that you don't believe exists."*  
+> &nbsp;&nbsp;— Unknown
 <!-- /QUOTE -->
