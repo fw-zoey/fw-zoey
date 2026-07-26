@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"You can't get to a place that you don't believe exists."*  
-> &nbsp;&nbsp;— Unknown
+> 💬 *"You have to make time, even for something as universal as staring at the stars."*  
+> &nbsp;&nbsp;— W.P. Kinsella
 <!-- /QUOTE -->
