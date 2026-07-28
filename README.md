@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Today you are you, that is truer than true. There is no one alive who is you-er than you."*  
-> &nbsp;&nbsp;— Dr. Seuss
+> 💬 *"If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form."*  
+> &nbsp;&nbsp;— Paramahansa Yogananda
 <!-- /QUOTE -->
