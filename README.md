@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form."*  
-> &nbsp;&nbsp;— Paramahansa Yogananda
+> 💬 *"The meaning of life is to find your gift. The purpose of life is to give it away."*  
+> &nbsp;&nbsp;— Pablo Picasso
 <!-- /QUOTE -->
