@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The meaning of life is to find your gift. The purpose of life is to give it away."*  
-> &nbsp;&nbsp;— Pablo Picasso
+> 💬 *"Turn your face to the sun, as flowers know how to do."*  
+> &nbsp;&nbsp;— Ming-Dao Deng
 <!-- /QUOTE -->
