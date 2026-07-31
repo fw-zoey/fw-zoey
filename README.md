@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Turn your face to the sun, as flowers know how to do."*  
-> &nbsp;&nbsp;— Ming-Dao Deng
+> 💬 *"Leadership is solving problems"*  
+> &nbsp;&nbsp;— Colin Powell
 <!-- /QUOTE -->
