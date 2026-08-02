@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving."*  
-> &nbsp;&nbsp;— Martin Luther King, Jr.
+> 💬 *"So we beat on, boats against the current, borne back ceaselessly into the past."*  
+> &nbsp;&nbsp;— F. Scott Fitzgerald
 <!-- /QUOTE -->
