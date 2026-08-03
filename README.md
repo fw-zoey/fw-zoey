@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"So we beat on, boats against the current, borne back ceaselessly into the past."*  
-> &nbsp;&nbsp;— F. Scott Fitzgerald
+> 💬 *"You're never too old for anything."*  
+> &nbsp;&nbsp;— Betty White
 <!-- /QUOTE -->
