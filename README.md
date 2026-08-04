@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"You're never too old for anything."*  
-> &nbsp;&nbsp;— Betty White
+> 💬 *"Every time we liberate a woman, we liberate a man."*  
+> &nbsp;&nbsp;— Margaret Mead
 <!-- /QUOTE -->
