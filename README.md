@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Every time we liberate a woman, we liberate a man."*  
-> &nbsp;&nbsp;— Margaret Mead
+> 💬 *"Man is affected not by events but by the view he takes of them."*  
+> &nbsp;&nbsp;— Seneca
 <!-- /QUOTE -->
