@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Man is affected not by events but by the view he takes of them."*  
-> &nbsp;&nbsp;— Seneca
+> 💬 *"Great acts are made up of small deeds."*  
+> &nbsp;&nbsp;— Lao Tzu
 <!-- /QUOTE -->
