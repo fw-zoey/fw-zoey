@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Life is the dancer and you are the dance."*  
-> &nbsp;&nbsp;— Eckhart Tolle
+> 💬 *"Only those who will risk going too far can possibly find out how far one can go."*  
+> &nbsp;&nbsp;— T.S. Eliot
 <!-- /QUOTE -->
