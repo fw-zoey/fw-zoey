@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Help others and give something back."*  
-> &nbsp;&nbsp;— Arnold Schwarzenegger
+> 💬 *"Fools talk, cowards are silent, wise men listen."*  
+> &nbsp;&nbsp;— Carlos Ruiz Zafon
 <!-- /QUOTE -->
