@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard."*  
-> &nbsp;&nbsp;— Colin Powell
+> 💬 *"Dreams have only one owner at a time. That's why dreamers are lonely."*  
+> &nbsp;&nbsp;— William Faulkner
 <!-- /QUOTE -->
