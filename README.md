@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Dreams have only one owner at a time. That's why dreamers are lonely."*  
-> &nbsp;&nbsp;— William Faulkner
+> 💬 *"Be royal in your own fashion: act like a king to be treated like one."*  
+> &nbsp;&nbsp;— Robert Greene
 <!-- /QUOTE -->
