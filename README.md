@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Be royal in your own fashion: act like a king to be treated like one."*  
-> &nbsp;&nbsp;— Robert Greene
+> 💬 *"Help others achieve their dreams and you will achieve yours."*  
+> &nbsp;&nbsp;— Les Brown
 <!-- /QUOTE -->
