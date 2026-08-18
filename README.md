@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Help others achieve their dreams and you will achieve yours."*  
-> &nbsp;&nbsp;— Les Brown
+> 💬 *"The greatest work that kindness does to others is that it makes them kind themselves."*  
+> &nbsp;&nbsp;— Amelia Earhart
 <!-- /QUOTE -->
