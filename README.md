@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The greatest work that kindness does to others is that it makes them kind themselves."*  
-> &nbsp;&nbsp;— Amelia Earhart
+> 💬 *"Thinking is the hardest work there is. That is why so few people engage in it."*  
+> &nbsp;&nbsp;— Robert Kiyosaki
 <!-- /QUOTE -->
