@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Thinking is the hardest work there is. That is why so few people engage in it."*  
-> &nbsp;&nbsp;— Robert Kiyosaki
+> 💬 *"Faithless is he that says farewell when the road darkens."*  
+> &nbsp;&nbsp;— J.R.R. Tolkien
 <!-- /QUOTE -->
