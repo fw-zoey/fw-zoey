@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Faithless is he that says farewell when the road darkens."*  
-> &nbsp;&nbsp;— J.R.R. Tolkien
+> 💬 *"If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems."*  
+> &nbsp;&nbsp;— Robert Kiyosaki
 <!-- /QUOTE -->
