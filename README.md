@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems."*  
+> 💬 *"FOCUS - Follow One Course Until Successful"*  
 > &nbsp;&nbsp;— Robert Kiyosaki
 <!-- /QUOTE -->
