@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"FOCUS - Follow One Course Until Successful"*  
-> &nbsp;&nbsp;— Robert Kiyosaki
+> 💬 *"Where does a thought go when it's forgotten?"*  
+> &nbsp;&nbsp;— Sigmund Freud
 <!-- /QUOTE -->
