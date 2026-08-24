@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Where does a thought go when it's forgotten?"*  
-> &nbsp;&nbsp;— Sigmund Freud
+> 💬 *"A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled."*  
+> &nbsp;&nbsp;— Andrew Carnegie
 <!-- /QUOTE -->
