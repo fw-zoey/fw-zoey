@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled."*  
-> &nbsp;&nbsp;— Andrew Carnegie
+> 💬 *"You are what you believe yourself to be."*  
+> &nbsp;&nbsp;— Paulo Coelho
 <!-- /QUOTE -->
