@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"You are what you believe yourself to be."*  
-> &nbsp;&nbsp;— Paulo Coelho
+> 💬 *"Stop comparing yourself to others and focus on your own improvement."*  
+> &nbsp;&nbsp;— Lolly Daskal
 <!-- /QUOTE -->
