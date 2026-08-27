@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Stop comparing yourself to others and focus on your own improvement."*  
-> &nbsp;&nbsp;— Lolly Daskal
+> 💬 *"Outstanding people have one thing in common: an absolute sense of mission."*  
+> &nbsp;&nbsp;— Zig Ziglar
 <!-- /QUOTE -->
