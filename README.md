@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Outstanding people have one thing in common: an absolute sense of mission."*  
-> &nbsp;&nbsp;— Zig Ziglar
+> 💬 *"Success is the sum of small efforts, repeated day in and day out."*  
+> &nbsp;&nbsp;— Robert Collier
 <!-- /QUOTE -->
