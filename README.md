@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Success is the sum of small efforts, repeated day in and day out."*  
-> &nbsp;&nbsp;— Robert Collier
+> 💬 *"Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse."*  
+> &nbsp;&nbsp;— Alfred Adler
 <!-- /QUOTE -->
