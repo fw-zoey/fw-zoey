@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse."*  
-> &nbsp;&nbsp;— Alfred Adler
+> 💬 *"I skate to where the puck is going to be, not where it has been."*  
+> &nbsp;&nbsp;— Wayne Gretzky
 <!-- /QUOTE -->
