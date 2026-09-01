@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"I skate to where the puck is going to be, not where it has been."*  
-> &nbsp;&nbsp;— Wayne Gretzky
+> 💬 *"It's better to stand by someone's side than by yourself."*  
+> &nbsp;&nbsp;— Jack London
 <!-- /QUOTE -->
