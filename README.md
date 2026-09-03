@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them."*  
-> &nbsp;&nbsp;— Denis Waitley
+> 💬 *"We must create our own world or we will die from inaction."*  
+> &nbsp;&nbsp;— Robert Greene
 <!-- /QUOTE -->
