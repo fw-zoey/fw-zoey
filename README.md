@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"We must create our own world or we will die from inaction."*  
-> &nbsp;&nbsp;— Robert Greene
+> 💬 *"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace."*  
+> &nbsp;&nbsp;— Morihei Ueshiba
 <!-- /QUOTE -->
