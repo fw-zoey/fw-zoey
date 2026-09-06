@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"It takes real work to grasp what is invisible to just about everyone else."*  
-> &nbsp;&nbsp;— Ryan Holiday
+> 💬 *"Life is the art of drawing sufficient conclusions from insufficient premises."*  
+> &nbsp;&nbsp;— Samuel Butler
 <!-- /QUOTE -->
