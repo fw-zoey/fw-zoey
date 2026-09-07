@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Life is the art of drawing sufficient conclusions from insufficient premises."*  
-> &nbsp;&nbsp;— Samuel Butler
+> 💬 *"The difference between ordinary and extraordinary is that little extra."*  
+> &nbsp;&nbsp;— Colin R. Davis
 <!-- /QUOTE -->
