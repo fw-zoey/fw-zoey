@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Nothing will work unless you do."*  
-> &nbsp;&nbsp;— Maya Angelou
+> 💬 *"The most important thing in life is to stop saying 'I wish' and start saying 'I will'. Consider nothing impossible, then treat possibilities as probabilities."*  
+> &nbsp;&nbsp;— Charles Dickens
 <!-- /QUOTE -->
