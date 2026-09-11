@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The most important thing in life is to stop saying 'I wish' and start saying 'I will'. Consider nothing impossible, then treat possibilities as probabilities."*  
-> &nbsp;&nbsp;— Charles Dickens
+> 💬 *"Avoiding failure is to avoid progress."*  
+> &nbsp;&nbsp;— Unknown
 <!-- /QUOTE -->
