@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Dreams are the royal road to the unconscious."*  
-> &nbsp;&nbsp;— Sigmund Freud
+> 💬 *"Never let your memories be greater than your dreams."*  
+> &nbsp;&nbsp;— Doug Ivester
 <!-- /QUOTE -->
