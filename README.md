@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Never let your memories be greater than your dreams."*  
-> &nbsp;&nbsp;— Doug Ivester
+> 💬 *"Optimism is the one quality more associated with success and happiness than any other."*  
+> &nbsp;&nbsp;— Brian Tracy
 <!-- /QUOTE -->
