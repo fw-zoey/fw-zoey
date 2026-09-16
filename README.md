@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Optimism is the one quality more associated with success and happiness than any other."*  
-> &nbsp;&nbsp;— Brian Tracy
+> 💬 *"Short cuts make long delays."*  
+> &nbsp;&nbsp;— J.R.R. Tolkien
 <!-- /QUOTE -->
