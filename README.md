@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Short cuts make long delays."*  
-> &nbsp;&nbsp;— J.R.R. Tolkien
+> 💬 *"Darkness cannot drive out darkness; only light can do that. Hate cannot drive out hate; only love can do that."*  
+> &nbsp;&nbsp;— Martin Luther King, Jr.
 <!-- /QUOTE -->
