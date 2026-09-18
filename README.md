@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Darkness cannot drive out darkness; only light can do that. Hate cannot drive out hate; only love can do that."*  
-> &nbsp;&nbsp;— Martin Luther King, Jr.
+> 💬 *"A person hears only what they understand."*  
+> &nbsp;&nbsp;— Johann Wolfgang von Goethe
 <!-- /QUOTE -->
