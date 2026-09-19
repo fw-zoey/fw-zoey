@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"A person hears only what they understand."*  
-> &nbsp;&nbsp;— Johann Wolfgang von Goethe
+> 💬 *"You are the average of the five people you spend most time with."*  
+> &nbsp;&nbsp;— Jim Rohn
 <!-- /QUOTE -->
