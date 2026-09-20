@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"You are the average of the five people you spend most time with."*  
-> &nbsp;&nbsp;— Jim Rohn
+> 💬 *"The future belongs to those who believe in the beauty of their dreams."*  
+> &nbsp;&nbsp;— Colin R. Davis
 <!-- /QUOTE -->
