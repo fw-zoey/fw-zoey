@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The future belongs to those who believe in the beauty of their dreams."*  
-> &nbsp;&nbsp;— Colin R. Davis
+> 💬 *"All you need is the plan, the road map, and the courage to press on to your destination."*  
+> &nbsp;&nbsp;— Earl Nightingale
 <!-- /QUOTE -->
