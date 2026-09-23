@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Keep your face to the sunshine and you cannot see the shadows."*  
-> &nbsp;&nbsp;— Helen Keller
+> 💬 *"Truth is the offspring of silence and meditation."*  
+> &nbsp;&nbsp;— Isaac Newton
 <!-- /QUOTE -->
