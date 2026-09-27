@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"We have more possibilities available in each moment than we realize."*  
-> &nbsp;&nbsp;— Thich Nhat Hanh
+> 💬 *"It is in your moments of decision that your destiny is shaped."*  
+> &nbsp;&nbsp;— Tony Robbins
 <!-- /QUOTE -->
