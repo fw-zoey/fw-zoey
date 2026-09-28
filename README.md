@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"It is in your moments of decision that your destiny is shaped."*  
-> &nbsp;&nbsp;— Tony Robbins
+> 💬 *"The secret of success lies not in doing your own work, but in recognizing the right man to do it."*  
+> &nbsp;&nbsp;— Andrew Carnegie
 <!-- /QUOTE -->
