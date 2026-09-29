@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The secret of success lies not in doing your own work, but in recognizing the right man to do it."*  
-> &nbsp;&nbsp;— Andrew Carnegie
+> 💬 *"Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine."*  
+> &nbsp;&nbsp;— Roy T. Bennett
 <!-- /QUOTE -->
