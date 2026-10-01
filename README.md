@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge."*  
-> &nbsp;&nbsp;— Stephen Hawking
+> 💬 *"If you do not change direction, you may end up where you are heading."*  
+> &nbsp;&nbsp;— Lao Tzu
 <!-- /QUOTE -->
