@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"If you do not change direction, you may end up where you are heading."*  
-> &nbsp;&nbsp;— Lao Tzu
+> 💬 *"Management is doing things right; leadership is doing the right things."*  
+> &nbsp;&nbsp;— Peter Drucker
 <!-- /QUOTE -->
