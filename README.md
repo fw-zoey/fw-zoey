@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Management is doing things right; leadership is doing the right things."*  
-> &nbsp;&nbsp;— Peter Drucker
+> 💬 *"The score never interested me, only the game."*  
+> &nbsp;&nbsp;— Mae West
 <!-- /QUOTE -->
