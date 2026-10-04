@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The score never interested me, only the game."*  
-> &nbsp;&nbsp;— Mae West
+> 💬 *"To wish you were someone else is to waste the person you are."*  
+> &nbsp;&nbsp;— Unknown
 <!-- /QUOTE -->
