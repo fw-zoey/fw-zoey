@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"To wish you were someone else is to waste the person you are."*  
-> &nbsp;&nbsp;— Unknown
+> 💬 *"Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle."*  
+> &nbsp;&nbsp;— Colin R. Davis
 <!-- /QUOTE -->
