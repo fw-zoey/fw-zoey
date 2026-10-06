@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle."*  
-> &nbsp;&nbsp;— Colin R. Davis
+> 💬 *"Do not fear failure but rather fear not trying."*  
+> &nbsp;&nbsp;— Roy T. Bennett
 <!-- /QUOTE -->
