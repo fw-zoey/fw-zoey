@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Do not fear failure but rather fear not trying."*  
-> &nbsp;&nbsp;— Roy T. Bennett
+> 💬 *"You can't get to a place that you don't believe exists."*  
+> &nbsp;&nbsp;— Unknown
 <!-- /QUOTE -->
