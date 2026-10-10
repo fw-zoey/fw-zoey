@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"So long as we are being remembered, we remain alive."*  
-> &nbsp;&nbsp;— Carlos Ruiz Zafon
+> 💬 *"Either you run the day or the day runs you."*  
+> &nbsp;&nbsp;— Jim Rohn
 <!-- /QUOTE -->
