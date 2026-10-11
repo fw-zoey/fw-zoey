@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Either you run the day or the day runs you."*  
-> &nbsp;&nbsp;— Jim Rohn
+> 💬 *"You can calculate the worth of a man by the number of his enemies."*  
+> &nbsp;&nbsp;— Gustave Flaubert
 <!-- /QUOTE -->
