@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"You can calculate the worth of a man by the number of his enemies."*  
-> &nbsp;&nbsp;— Gustave Flaubert
+> 💬 *"Greatest success comes just one step beyond the point at which defeat overtakes you."*  
+> &nbsp;&nbsp;— Unknown
 <!-- /QUOTE -->
