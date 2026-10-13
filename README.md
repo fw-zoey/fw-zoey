@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Greatest success comes just one step beyond the point at which defeat overtakes you."*  
-> &nbsp;&nbsp;— Unknown
+> 💬 *"If I cannot do great things. I can do small things in a great way."*  
+> &nbsp;&nbsp;— Martin Luther King, Jr.
 <!-- /QUOTE -->
