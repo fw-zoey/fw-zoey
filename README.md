@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"If I cannot do great things. I can do small things in a great way."*  
-> &nbsp;&nbsp;— Martin Luther King, Jr.
+> 💬 *"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible."*  
+> &nbsp;&nbsp;— Josh Waitzkin
 <!-- /QUOTE -->
