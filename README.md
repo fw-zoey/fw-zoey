@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible."*  
-> &nbsp;&nbsp;— Josh Waitzkin
+> 💬 *"The only place where success comes before work is in the dictionary."*  
+> &nbsp;&nbsp;— Vidal Sassoon
 <!-- /QUOTE -->
