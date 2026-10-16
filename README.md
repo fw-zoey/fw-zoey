@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The only place where success comes before work is in the dictionary."*  
-> &nbsp;&nbsp;— Vidal Sassoon
+> 💬 *"Make your stand today. On this spot. On this day."*  
+> &nbsp;&nbsp;— Ming-Dao Deng
 <!-- /QUOTE -->
