@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Make your stand today. On this spot. On this day."*  
-> &nbsp;&nbsp;— Ming-Dao Deng
+> 💬 *"It is better to point out your own mistakes than have somebody else do it."*  
+> &nbsp;&nbsp;— Warren Buffett
 <!-- /QUOTE -->
