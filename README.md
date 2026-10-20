@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Abundance of knowledge does not teach men to be wise."*  
-> &nbsp;&nbsp;— Heraclitus
+> 💬 *"Dreams are the royal road to the unconscious."*  
+> &nbsp;&nbsp;— Sigmund Freud
 <!-- /QUOTE -->
