@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Dreams are the royal road to the unconscious."*  
-> &nbsp;&nbsp;— Sigmund Freud
+> 💬 *"Being wrong opens us up to the possibility of change."*  
+> &nbsp;&nbsp;— Mark Manson
 <!-- /QUOTE -->
