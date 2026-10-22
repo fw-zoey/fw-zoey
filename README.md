@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Being wrong opens us up to the possibility of change."*  
-> &nbsp;&nbsp;— Mark Manson
+> 💬 *"Happiness is the meaning and the purpose of life, the whole aim and end of human existence."*  
+> &nbsp;&nbsp;— Aristotle
 <!-- /QUOTE -->
