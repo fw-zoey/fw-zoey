@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Happiness is the meaning and the purpose of life, the whole aim and end of human existence."*  
-> &nbsp;&nbsp;— Aristotle
+> 💬 *"Dreams have only one owner at a time. That's why dreamers are lonely."*  
+> &nbsp;&nbsp;— William Faulkner
 <!-- /QUOTE -->
