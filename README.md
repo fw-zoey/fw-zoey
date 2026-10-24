@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Dreams have only one owner at a time. That's why dreamers are lonely."*  
-> &nbsp;&nbsp;— William Faulkner
+> 💬 *"Don't be afraid to give up the good to go for the great."*  
+> &nbsp;&nbsp;— Colin R. Davis
 <!-- /QUOTE -->
