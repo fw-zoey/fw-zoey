@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Know your gifts and share them."*  
-> &nbsp;&nbsp;— Les Brown
+> 💬 *"Every day is an opportunity to a make a new happy ending."*  
+> &nbsp;&nbsp;— Jonathan Swift
 <!-- /QUOTE -->
