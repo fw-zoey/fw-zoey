@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Every day is an opportunity to a make a new happy ending."*  
-> &nbsp;&nbsp;— Jonathan Swift
+> 💬 *"Life is too important to be taken seriously."*  
+> &nbsp;&nbsp;— Oscar Wilde
 <!-- /QUOTE -->
