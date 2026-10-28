@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Life is too important to be taken seriously."*  
-> &nbsp;&nbsp;— Oscar Wilde
+> 💬 *"Do not pray for an easy life, pray for the strength to endure a difficult one."*  
+> &nbsp;&nbsp;— Bruce Lee
 <!-- /QUOTE -->
