@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Do not pray for an easy life, pray for the strength to endure a difficult one."*  
-> &nbsp;&nbsp;— Bruce Lee
+> 💬 *"You drown not by falling into a river, but by staying submerged in it."*  
+> &nbsp;&nbsp;— Paulo Coelho
 <!-- /QUOTE -->
