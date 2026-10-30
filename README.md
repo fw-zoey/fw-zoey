@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"You drown not by falling into a river, but by staying submerged in it."*  
-> &nbsp;&nbsp;— Paulo Coelho
+> 💬 *"Remember to look up at the stars and not down at your feet."*  
+> &nbsp;&nbsp;— Stephen Hawking
 <!-- /QUOTE -->
