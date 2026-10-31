@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Remember to look up at the stars and not down at your feet."*  
-> &nbsp;&nbsp;— Stephen Hawking
+> 💬 *"You win more from losing than winning."*  
+> &nbsp;&nbsp;— Morgan Wootten
 <!-- /QUOTE -->
