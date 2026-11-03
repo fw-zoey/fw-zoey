@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"I'd rather welcome change than cling to the past."*  
-> &nbsp;&nbsp;— Robert Kiyosaki
+> 💬 *"Being an intellectual creates a lot of questions and no answers."*  
+> &nbsp;&nbsp;— David Brinkley
 <!-- /QUOTE -->
