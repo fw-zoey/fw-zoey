@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Being an intellectual creates a lot of questions and no answers."*  
-> &nbsp;&nbsp;— David Brinkley
+> 💬 *"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love."*  
+> &nbsp;&nbsp;— Dr. Seuss
 <!-- /QUOTE -->
