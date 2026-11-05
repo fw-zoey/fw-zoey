@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love."*  
-> &nbsp;&nbsp;— Dr. Seuss
+> 💬 *"Nothing like a health problem to turn up the contrast dial for the rest of life."*  
+> &nbsp;&nbsp;— Naval Ravikant
 <!-- /QUOTE -->
