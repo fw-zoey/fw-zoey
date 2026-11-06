@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Nothing like a health problem to turn up the contrast dial for the rest of life."*  
-> &nbsp;&nbsp;— Naval Ravikant
+> 💬 *"Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot."*  
+> &nbsp;&nbsp;— D. H. Lawrence
 <!-- /QUOTE -->
