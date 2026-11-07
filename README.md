@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot."*  
-> &nbsp;&nbsp;— D. H. Lawrence
+> 💬 *"It is better to fail in originality than to succeed in imitation."*  
+> &nbsp;&nbsp;— Herman Melville
 <!-- /QUOTE -->
