@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"It is better to fail in originality than to succeed in imitation."*  
-> &nbsp;&nbsp;— Herman Melville
+> 💬 *"Far and away the best prize that life has to offer is the chance to work hard at work worth doing."*  
+> &nbsp;&nbsp;— Theodore Roosevelt
 <!-- /QUOTE -->
