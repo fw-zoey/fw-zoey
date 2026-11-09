@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Far and away the best prize that life has to offer is the chance to work hard at work worth doing."*  
-> &nbsp;&nbsp;— Theodore Roosevelt
+> 💬 *"The essence of the Way is detachment."*  
+> &nbsp;&nbsp;— Bodhidharma
 <!-- /QUOTE -->
