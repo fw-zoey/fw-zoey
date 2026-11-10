@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The essence of the Way is detachment."*  
-> &nbsp;&nbsp;— Bodhidharma
+> 💬 *"Focused, hard work is the real key to success."*  
+> &nbsp;&nbsp;— John Carmack
 <!-- /QUOTE -->
