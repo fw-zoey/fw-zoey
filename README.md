@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Focused, hard work is the real key to success."*  
-> &nbsp;&nbsp;— John Carmack
+> 💬 *"He who knows best knows how little he knows."*  
+> &nbsp;&nbsp;— Thomas Jefferson
 <!-- /QUOTE -->
