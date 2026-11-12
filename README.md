@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"He who knows best knows how little he knows."*  
-> &nbsp;&nbsp;— Thomas Jefferson
+> 💬 *"It is better to light a single candle than to curse the darkness."*  
+> &nbsp;&nbsp;— Eleanor Roosevelt
 <!-- /QUOTE -->
