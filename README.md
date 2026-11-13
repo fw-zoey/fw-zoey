@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"It is better to light a single candle than to curse the darkness."*  
-> &nbsp;&nbsp;— Eleanor Roosevelt
+> 💬 *"The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting."*  
+> &nbsp;&nbsp;— Zig Ziglar
 <!-- /QUOTE -->
