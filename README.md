@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting."*  
-> &nbsp;&nbsp;— Zig Ziglar
+> 💬 *"Don´t hesitate or allow yourself to make excuses. Just get out and do it."*  
+> &nbsp;&nbsp;— Christopher McCandless
 <!-- /QUOTE -->
