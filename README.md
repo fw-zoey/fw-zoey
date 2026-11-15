@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Don´t hesitate or allow yourself to make excuses. Just get out and do it."*  
-> &nbsp;&nbsp;— Christopher McCandless
+> 💬 *"A journey of a thousand miles begins with a single step."*  
+> &nbsp;&nbsp;— Lao Tzu
 <!-- /QUOTE -->
