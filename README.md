@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The season of failure is the best time for sowing the seeds of success."*  
-> &nbsp;&nbsp;— Paramahansa Yogananda
+> 💬 *"Anything becomes interesting if you look at it long enough.."*  
+> &nbsp;&nbsp;— Gustave Flaubert
 <!-- /QUOTE -->
