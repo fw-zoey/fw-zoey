@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Anything becomes interesting if you look at it long enough.."*  
-> &nbsp;&nbsp;— Gustave Flaubert
+> 💬 *"Few things are more deceptive than memories."*  
+> &nbsp;&nbsp;— Carlos Ruiz Zafon
 <!-- /QUOTE -->
