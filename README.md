@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Success is often achieved by those who don't know that failure is inevitable."*  
-> &nbsp;&nbsp;— Coco Chanel
+> 💬 *"Success in any endeavor depends on the degree to which it is an expression of your true self."*  
+> &nbsp;&nbsp;— Ralph Marston
 <!-- /QUOTE -->
