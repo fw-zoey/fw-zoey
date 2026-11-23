@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Success in any endeavor depends on the degree to which it is an expression of your true self."*  
-> &nbsp;&nbsp;— Ralph Marston
+> 💬 *"There are dark shadows on the earth, but its lights are stronger in the contrast."*  
+> &nbsp;&nbsp;— Charles Dickens
 <!-- /QUOTE -->
