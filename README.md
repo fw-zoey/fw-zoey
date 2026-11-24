@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"There are dark shadows on the earth, but its lights are stronger in the contrast."*  
-> &nbsp;&nbsp;— Charles Dickens
+> 💬 *"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing."*  
+> &nbsp;&nbsp;— Alan Watts
 <!-- /QUOTE -->
