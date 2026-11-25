@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing."*  
-> &nbsp;&nbsp;— Alan Watts
+> 💬 *"The soul is neither born, and nor does it die."*  
+> &nbsp;&nbsp;— Bhagavad Gita
 <!-- /QUOTE -->
