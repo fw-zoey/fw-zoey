@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"The soul is neither born, and nor does it die."*  
-> &nbsp;&nbsp;— Bhagavad Gita
+> 💬 *"When you love someone, you love the person as they are, and not as you'd like them to be."*  
+> &nbsp;&nbsp;— Leo Tolstoy
 <!-- /QUOTE -->
