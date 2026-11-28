@@ -1,4 +1,4 @@
 <!-- QUOTE -->
-> 💬 *"Work is always an antidote to depression."*  
-> &nbsp;&nbsp;— Eleanor Roosevelt
+> 💬 *"Be polite to all, but intimate with few."*  
+> &nbsp;&nbsp;— Thomas Jefferson
 <!-- /QUOTE -->
